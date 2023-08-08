@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ... anything I can do
 - 📫 How to reach me ... Discord probably
 
-My univesity deleted my e-mail account so I had to make a new GitHub account.
+My university deleted my e-mail account so I had to make a new GitHub account.
